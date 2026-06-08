@@ -1,2 +1,1 @@
-# bcharanreddy.github.io
-Bcharan Reddy
+www.managruha.com
